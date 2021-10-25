@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DeHavain
-- 👀 I’m interested in all thing tech but especially computer and AI automation.
+- 👀 I’m interested in all things tech but especially computer and AI automation.
 - I'm just cruising in the Space for now 🚀👩‍🚀
 
 <!---
